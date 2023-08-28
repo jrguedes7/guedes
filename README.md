@@ -1,3 +1,1 @@
-# guedes
-# variavel-
-# variavel-
+
